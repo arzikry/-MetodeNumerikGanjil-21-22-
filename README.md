@@ -1,0 +1,1 @@
+# -MetodeNumerikGanjil-21-22-
